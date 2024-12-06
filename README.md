@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...ads
 - 📫 How to reach me ...rr
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...sdf
 - ⚡ Fun fact: ...23
 - fgm65412
 asd
