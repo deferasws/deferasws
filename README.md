@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @deferasws
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...ads
+- 💞️ I’m looking to collaborate on ...ads45
 - 📫 How to reach me ...rr
 - 😄 Pronouns: ...sdfdsf
 - ⚡ Fun fact: ...23
