@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...ads45
-- 📫 How to reach me ...rr
+- 📫 How to reach me ...rr55555
 - 😄 Pronouns: ...sdfdsf
 - ⚡ Fun fact: ...23
 - fgm6541259666rfe
