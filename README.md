@@ -1,7 +1,7 @@
 dffdg- 👋 Hi, I’m @deferasws
 - 👀 I’m interested in ...52263
 - 🌱 I’m currently learning ...xcv
-- 💞️ I’m looking to collaborate on ...ads456996fewrree
+- 💞️ I’m looking to collaborate on ...ads456996fewrreeyer
 - 📫 How to reach me ...rr55555dfdfferxcv3+3663
 - 😄 Pronouns: ...sdfdsf1545652622545469556+th
 asdcvbnhbgfddf
